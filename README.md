@@ -22,4 +22,4 @@ Transformo processos manuais em automações inteligentes. 🐍 Criando soluçõ
 ---
 
 ### 📫 Vamos trocar uma ideia?
-[LinkedIn](SEU_LINK_DO_LINKEDIN_AQUI)
+[LinkedIn](https://www.linkedin.com/in/rodrigo-willian-batista-56141a353?utm_source=share_via&utm_content=profile&utm_medium=member_android)
